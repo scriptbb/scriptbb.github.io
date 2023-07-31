@@ -1,1 +1,1 @@
-# scriptbb.github.io
+scriptzz的个人网安学习记录
